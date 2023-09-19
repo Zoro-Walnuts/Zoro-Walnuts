@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @Zoro-Walnuts
-- Little Fairy Piss Baby
+- @Zoro-Walnuts
+- Likes Walnuts
+- Little Piss Baby Fairy
 - ~~World Record Holder~~
 - Obsidian enthusiast
 - Going Insaneo style
